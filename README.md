@@ -18,7 +18,7 @@
   **ritikeshyadav2020@gmail.com**
 
 - 📄 Resume:  
-  https://drive.google.com/file/d/1AwzbCcyqEljKpee0abHmNG1YNbnEbbHj/view
+  [https://drive.google.com/file/d/1AwzbCcyqEljKpee0abHmNG1YNbnEbbHj/view](https://drive.google.com/file/d/1aGQN82j0witUM9fwE4dBTl1s_77Owcr2/view?usp=sharing)
 
 ---
 
